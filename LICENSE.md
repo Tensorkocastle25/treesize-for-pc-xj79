@@ -1,4 +1,4 @@
-# 
+# Get the ultimate TreeSize for PC | TreeSize for Windows extension with automatic TreeSize for PC | TreeSize for Windows Extension | duplicate-detection + export-reports. Featuring
 
 
 
